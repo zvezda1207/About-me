@@ -12,7 +12,7 @@
 
 ![Фото озера в горах](https://img3.akspic.ru/attachments/originals/8/0/5/5/45508-nauka-nebo-ozero_pejto-pustynya-ekosistema-4096x2725.jpg)
 
-## Что я не лбюлю
+## Что я не люблю
 
 - Непрофессионализм
 - **Лишняя** самоуверенность
